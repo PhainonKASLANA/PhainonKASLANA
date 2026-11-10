@@ -1,16 +1,64 @@
-## Hi there 👋
+<div align="center">  
+  
+<img width="1200" height="400" alt="7c71c3f10777afa87f54790c7fa42e39" src="https://github.com/user-attachments/assets/551a285a-a7ca-41af-92f4-a41ffa05b6e4" />
 
-<!--
-**PhainonKASLANA/PhainonKASLANA** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+## 𝑮𝒓𝒆𝒆𝒕𝒊𝒏𝒈𝒔. ♦
+𝐌𝐲 𝐧𝐚𝐦𝐞 𝐈𝐬 ̠P̠̠h̠a̠̠i̠̠n̠̠o̠̠n̠
+
+  ### 𝑷𝒍𝒆𝒂𝒔𝒆 ṚЁÄḊ 𝑴𝒚 [ȻȺɌɌĐ](https://nyahooonishi.carrd.co/) 𝑭𝒐𝒓 𝑭𝒖𝒓𝒕𝒉𝒆𝒓 𝑰𝒏𝒇𝒐 𝒂𝒃𝒐𝒖𝒕 𝒎𝒆,
+## 𝑴𝒚 [͕S͕͕T͕͕R͕͕A͕͕W͕͕P͕͕A͕͕G͕͕E͕](https://meetgojosatoruuu.straw.page) 
+
+<img width="498" height="281" alt="E512CDBD-E548-49BF-A032-85F60CA4D6C1" src="https://github.com/user-attachments/assets/c41be05c-3aac-4d1d-a65b-e8a4927bc761" />
+
+
+
+
+
+</div>
+
+<p align="center">
+
+
+
+  
+ <div align="center">  
+
+
+<div align="center">  
+
+  ## ṚЁÄḊ 𝑩𝒆𝒇𝒐𝒓𝒆 𝑰𝒏𝒕 ♦
+
+</div>
+
+𝙞𝙢 𝙫𝙚𝙧𝙮 𝙨𝙝𝙮 𝙖𝙣𝙙 𝙨𝙚𝙡𝙚𝙘𝙩𝙞𝙫𝙚 𝙗𝙪𝙩 𝙞𝙢 𝙘𝙤𝙤𝙡 𝙬𝙞𝙩𝙝 𝙢𝙚𝙚𝙩𝙞𝙣𝙜 𝙣𝙚𝙬 𝙥𝙤𝙤𝙠𝙞𝙚𝙨 !!  𝙋𝙡𝙚𝙖𝙨𝙚 𝙞𝙣𝙩 𝙬𝙞𝙩𝙝 𝙢𝙚 𝙛𝙞𝙧𝙨𝙩 𝙗𝙚𝙛𝙤𝙧𝙚 𝙄 𝙘𝙤𝙣𝙨𝙞𝙙𝙚𝙧 𝙖𝙙𝙙𝙞𝙣𝙜 𝙮𝙤𝙪 **𝙩𝙝𝙖𝙩𝙨 𝙪𝙣𝙡𝙚𝙨𝙨 𝙮𝙤𝙪'𝙧𝙚 𝙥𝙤𝙤𝙠𝙞𝙚𝙨 𝙬𝙞𝙩𝙝 𝙢𝙮 𝙥𝙤𝙤𝙠𝙞𝙚𝙨** **𝙄 𝙖𝙢 𝙫𝙚𝙧𝙮 𝙞𝙣𝙩𝙧𝙤𝙫𝙚𝙧𝙩𝙚𝙙**, 𝙄 𝙝𝙖𝙫𝙚 𝙖 𝙝𝙖𝙧𝙙 𝙩𝙞𝙢𝙚 𝙈𝙖𝙠𝙞𝙣𝙜 𝙣𝙚𝙬 𝙛𝙧𝙞𝙚𝙣𝙙𝙨 𝙡𝙚𝙩 𝙖𝙡𝙤𝙣𝙚 𝘿𝙤𝙞𝙣𝙜 𝙩𝙝𝙚 𝙛𝙞𝙧𝙨𝙩 𝙢𝙤𝙫𝙚𝙨, 𝙨𝙤 𝙛𝙚𝙚𝙡 𝙛𝙧𝙚𝙚 𝙩𝙤 𝙘𝙪𝙙𝙙𝙡𝙚 𝙤𝙧 𝙞𝙣𝙩 𝙬𝙞𝙩𝙝 𝙢𝙚!!
+<div align="center">  
+
+
+<img width="736" height="414" alt="6a16563234efa18dc8caaccf6f5f0f90" src="https://github.com/user-attachments/assets/e308a676-03b2-499c-9912-52bf285a9e8b" />
+
+# 𝑫𝑵𝑰 ♦
+
+
+</div>
+
+**𝙄 𝘿𝙄𝙎𝙇𝙄𝙆𝙀 P̳̿͟͞R̳̿͟͞O̳̿͟͞B̳̿͟͞L̳̿͟͞E̳̿͟͞M̳̿͟͞A̳̿͟͞T̳̿͟͞I̳̿͟͞C̳̿͟͞ 𝙋𝙀𝙊𝙋𝙇𝙀.** 𝙄 𝙬𝙞𝙡𝙡 𝙗𝙡𝙤𝙘𝙠 𝙛𝙧𝙚𝙚𝙡𝙮 𝙞𝙛 𝙮𝙤𝙪'𝙧𝙚 𝙩𝙤𝙤 𝙞𝙢𝙢𝙖𝙩𝙪𝙧𝙚 𝙛𝙤𝙧 𝙢𝙮 𝙏𝙖𝙨𝙩𝙚. 𝙄 𝙤𝙣𝙡𝙮 𝙘𝙤𝙣𝙨𝙞𝙙𝙚𝙧 15+ 𝙮𝙚𝙖𝙧𝙨 𝙤𝙡𝙙 𝙤𝙩𝙝𝙚𝙧𝙬𝙞𝙨𝙚 𝙞𝙛 𝙮𝙤𝙪'𝙧𝙚 𝙪𝙣𝙙𝙚𝙧𝙖𝙜𝙚 𝙄 𝙬𝙞𝙡𝙡 𝙣𝙤𝙩 𝙩𝙤𝙡𝙚𝙧𝙖𝙩𝙚 𝙗𝙚𝙞𝙣𝙜 𝙖𝙨𝙨𝙤𝙘𝙞𝙖𝙩𝙚𝙙 𝙬𝙞𝙩𝙝 𝙮𝙤𝙪 **𝙉𝙤𝙩𝙚:** 𝙄 𝙜𝙞𝙫𝙚 𝙘𝙤𝙣𝙨𝙞𝙙𝙚𝙧𝙖𝙩𝙞𝙤𝙣𝙨 𝙬𝙞𝙩𝙝 𝙢𝙞𝙣𝙤𝙧𝙨 𝙖𝙨 𝙡𝙤𝙣𝙜 𝙖𝙨 𝙮𝙤𝙪 𝙠𝙣𝙤𝙬 𝙝𝙤𝙬 𝙩𝙤 𝙪𝙨𝙚 𝙮𝙤𝙪𝙧 𝙗𝙧𝙖𝙞𝙣 𝙥𝙧𝙤𝙥𝙚𝙧𝙡𝙮 𝙊𝙏𝙃𝙀𝙍𝙒𝙄𝙎𝙀 𝙄 𝙖𝙢 𝙛𝙧𝙚𝙚 𝙩𝙤 𝙗𝙡𝙤𝙘𝙠 𝙮𝙤𝙪.
+<div align="center">  
+
+# 𝑰𝑵𝑻 ♦
+
+</div>
+
+𝙄 𝙪𝙨𝙪𝙖𝙡𝙡𝙮 𝙨𝙞𝙩 𝙙𝙤𝙬𝙣 𝙊𝙣 𝙝𝙤𝙮𝙤 𝙖𝙧𝙚𝙖 𝙖𝙡𝙤𝙣𝙚 𝙊𝙧 𝙗𝙮 𝙢𝙮 𝙛𝙧𝙞𝙚𝙣𝙙𝙨 / 𝙋𝙖𝙧𝙩𝙮 / 𝙥𝙥𝙡 𝙄 𝙠𝙣𝙤𝙬, 𝙖𝙣𝙙 𝙖𝙛𝙠 𝙩𝙝𝙚𝙧𝙚. 𝙋𝙡𝙚𝙖𝙨𝙚 𝙛𝙚𝙚𝙡 𝙛𝙧𝙚𝙚 𝙩𝙤 𝙘𝙝𝙖𝙩 𝙬𝙞𝙩𝙝 𝙢𝙚 𝙞𝙛 𝙮𝙤𝙪 𝙡𝙞𝙠𝙚!! 𝙄 𝙖𝙢 𝙫𝙚𝙧𝙮 𝙤𝙥𝙚𝙣 𝙖𝙣𝙙 𝙬𝙞𝙡𝙡𝙞𝙣𝙜 𝙩𝙤 𝙘𝙝𝙖𝙩 𝙬𝙞𝙩𝙝 𝙤𝙩𝙝𝙚𝙧𝙨!! 
+
+
+<div align="center">  
+
+# 𝙞𝙣 𝙩𝙚𝙧𝙢𝙨 𝙤𝙛 𝙗𝙡𝙤𝙘𝙠 / 𝙝𝙞𝙙𝙚  ♦
+</div>
+
+𝙞𝙛 𝙮𝙤𝙪 𝙛𝙤𝙪𝙣𝙙 𝙮𝙤𝙪𝙧𝙨𝙚𝙡𝙛 𝙝𝙞𝙙𝙙𝙚𝙣 / ̷͓̽B͓͓̽̽L͓͓̽̽O͓͓̽̽C͓͓̽̽K͓͓̽̽E͓͓̽̽D͓̽ 𝙗𝙮 𝙢𝙚  𝙣𝙤𝙩𝙚 𝙩𝙝𝙖𝙩 𝙩𝙝𝙞𝙨 𝙞𝙨 𝙗𝙚𝙘𝙖𝙪𝙨𝙚 𝙮𝙤𝙪'𝙫𝙚 𝙙𝙤𝙣𝙚 𝙨𝙤𝙢𝙚𝙩𝙝𝙞𝙣𝙜 𝙄 𝙙𝙞𝙨𝙡𝙞𝙠𝙚𝙙, 𝙤𝙧 𝙟𝙪𝙨𝙩 𝙨𝙩𝙧𝙖𝙞𝙜𝙝𝙩 𝙪𝙥 𝙥𝙧𝙤𝙗𝙡𝙚𝙢𝙖𝙩𝙞𝙘 **𝙝𝙤𝙬𝙚𝙫𝙚𝙧 𝙄 𝙙𝙤𝙣'𝙩 𝙗𝙡𝙤𝙘𝙠 𝙥𝙚𝙤𝙥𝙡𝙚 𝙥𝙚𝙧𝙢𝙖𝙣𝙚𝙣𝙩𝙡𝙮~!!**  𝙞𝙛 𝙮𝙤𝙪 𝙖𝙧𝙚 𝙗𝙡𝙤𝙘𝙠𝙚𝙙 𝙥𝙚𝙧𝙢𝙖𝙣𝙚𝙣𝙩𝙡𝙮 𝙔𝙚𝙨, 𝙄 𝙟𝙪𝙨𝙩 𝙙𝙞𝙨𝙡𝙞𝙠𝙚 𝙗𝙚𝙞𝙣𝙜 𝙖𝙨𝙨𝙤𝙘𝙞𝙖𝙩𝙚𝙙 𝙬𝙞𝙩𝙝 𝙮𝙤𝙪. 𝙃𝙤𝙬𝙚𝙫𝙚𝙧 𝙞𝙛 𝙮𝙤𝙪 𝙖𝙧𝙚 𝙬𝙞𝙡𝙡𝙞𝙣𝙜 𝙩𝙤 𝙩𝙖𝙡𝙠 𝙖𝙗𝙤𝙪𝙩 𝙞𝙩 𝙔𝙤𝙪 𝙢𝙖𝙮 𝙘𝙤𝙣𝙨𝙞𝙙𝙚𝙧 𝙩𝙚𝙡𝙡𝙞𝙣𝙜 𝙢𝙚 𝙤𝙧 𝙖 𝙛𝙧𝙞𝙚𝙣𝙙 𝙤𝙛 𝙢𝙞𝙣𝙚.
+
+<img width="720" height="442" alt="b700a0ea267d01488011b6242e6c710c" src="https://github.com/user-attachments/assets/d571f861-95b2-47a7-9db9-f7f3180d1ad2" />
+
