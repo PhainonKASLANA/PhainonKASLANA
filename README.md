@@ -8,8 +8,7 @@
 𝐌𝐲 𝐧𝐚𝐦𝐞 𝐈𝐬 ̠P̠̠h̠a̠̠i̠̠n̠̠o̠̠n̠
 
   ### 𝑷𝒍𝒆𝒂𝒔𝒆 ṚЁÄḊ 𝑴𝒚 [ȻȺɌɌĐ](https://nyahooonishi.carrd.co/) 𝑭𝒐𝒓 𝑭𝒖𝒓𝒕𝒉𝒆𝒓 𝑰𝒏𝒇𝒐 𝒂𝒃𝒐𝒖𝒕 𝒎𝒆,
-## 𝑴𝒚 [͕S͕͕T͕͕R͕͕A͕͕W͕͕P͕͕A͕͕G͕͕E͕](https://meetgojosatoruuu.straw.page) 
-
+  
 <img width="498" height="281" alt="E512CDBD-E548-49BF-A032-85F60CA4D6C1" src="https://github.com/user-attachments/assets/c41be05c-3aac-4d1d-a65b-e8a4927bc761" />
 
 
