@@ -1,6 +1,6 @@
 <div align="center">  
   
-<img width="1200" height="400" alt="7c71c3f10777afa87f54790c7fa42e39" src="https://github.com/user-attachments/assets/551a285a-a7ca-41af-92f4-a41ffa05b6e4" />
+<img width="1199" height="665" alt="274cd9eda49614b5c024344328c7e3b7" src="https://github.com/user-attachments/assets/e1fc493c-8fe4-4a3a-9fd9-1c371141e7ce" />
 
 
 
@@ -9,7 +9,8 @@
 
   ### 𝑷𝒍𝒆𝒂𝒔𝒆 ṚЁÄḊ 𝑴𝒚 [ȻȺɌɌĐ](https://nyahooonishi.carrd.co/) 𝑭𝒐𝒓 𝑭𝒖𝒓𝒕𝒉𝒆𝒓 𝑰𝒏𝒇𝒐 𝒂𝒃𝒐𝒖𝒕 𝒎𝒆,
   
-<img width="498" height="281" alt="E512CDBD-E548-49BF-A032-85F60CA4D6C1" src="https://github.com/user-attachments/assets/c41be05c-3aac-4d1d-a65b-e8a4927bc761" />
+<img width="736" height="414" alt="6a16563234efa18dc8caaccf6f5f0f90" src="https://github.com/user-attachments/assets/4301bf00-4195-4eef-a0bb-d1cc626a8c02" />
+
 
 
 
@@ -35,7 +36,7 @@
 <div align="center">  
 
 
-<img width="736" height="414" alt="6a16563234efa18dc8caaccf6f5f0f90" src="https://github.com/user-attachments/assets/e308a676-03b2-499c-9912-52bf285a9e8b" />
+<img width="736" height="414" alt="0acd90b3b6ebe63334fc0c509a1941d0" src="https://github.com/user-attachments/assets/79db009f-a412-4c4c-a2eb-a45d31798c85" />
 
 # 𝑫𝑵𝑰 ♦
 
@@ -56,5 +57,7 @@
 
 
 
-<img width="720" height="442" alt="b700a0ea267d01488011b6242e6c710c" src="https://github.com/user-attachments/assets/d571f861-95b2-47a7-9db9-f7f3180d1ad2" />
+<img width="1200" height="638" alt="2419d79542b3acf79446b9f6fe4aac09" src="https://github.com/user-attachments/assets/349abb7a-37c5-490e-be69-2d219fc3c320" />
 
+
+</div>
